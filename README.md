@@ -17,4 +17,4 @@ I am open to collaborating on projects related to data science, AI, machine lear
 He/Him
 
 ### ⚡ Fun fact: ...
-I am an astrophysicist who loves to gaze at the stars and uncover the mysteries of the universe. In my free time, I enjoy hiking, photography, and playing chess.
+I am an astrophysicist who loves to gaze at the stars and uncover the mysteries of the universe. In my free time, I enjoy hiking, photography, and playing ping pong and volley ball.
